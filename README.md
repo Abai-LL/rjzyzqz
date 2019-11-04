@@ -12,3 +12,4 @@
 
 花一块钱，成就一个十亿级项目。你值得拥有
 
+![image](https://github.com/Abai-LL/rjzyzqz/edit/master/pic.jpg?raw=true)
